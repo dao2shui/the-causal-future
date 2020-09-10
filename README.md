@@ -1,0 +1,1 @@
+Taking bite as example transformation, two experiments were designed to investigate the effect of bitten and complete familiar or unfamiliar stimuli on the allocation of visual attention and to further reveal whether the causal history of a shape plays a role in the speculation of its future development.
